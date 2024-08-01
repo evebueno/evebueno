@@ -1,4 +1,4 @@
-## Hi S10 😍
+## Hi Fãs 😍
 
 - Estou estudando na mitsusada.
 - Estou precisando beber.
